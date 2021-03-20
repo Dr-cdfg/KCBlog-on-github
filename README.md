@@ -3,4 +3,4 @@ kcblog here！
 
 1278467936@qq.com and cdfg@kcblog.asia
 
-https://www.kcblog.asia
+https://blog.kcblog.asia
